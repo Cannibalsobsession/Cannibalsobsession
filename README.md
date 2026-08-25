@@ -1,5 +1,13 @@
-## Hi there 👋
 
+𖥨᩠ׄˇ⌢. ۫ ·。ყoυ ᥴᥲᥒ bᥱ thᥱ most bᥱᥲυtιfυᥣ shᥲdᥱ of bᥣυᥱ bυt ყoυ'ᥣᥣ ᥒᥱvᥱr bᥱ ᥱᥒoυgh for somᥱoᥒᥱ whosᥱ fᥲvorιtᥱ ᥴoᥣor ιs grᥱᥱᥒ  ◟ 𐄑𓈒ֺ 𓏼 ᨳଓ .
+
+[![u~eburiburogu-sabisuha-zhong-leshimashita.gif](https://i.postimg.cc/2ygzkrdJ/u~eburiburogu-sabisuha-zhong-leshimashita.gif)](https://postimg.cc/MfbktkFb)
+
+— ᨳଓ .hᥱყ hᥱყ ρᥱoρᥣᥱ υᥒdᥱr thᥱ ᥲgᥱ of 𝟷𝟺 ιwᥴ oυt of wᥱ r ᥴᥣosᥱ frιᥱᥒds ρᥣs ιm 𝟷𝟿 ᥲᥒd ι do ᥒot wᥲᥒt to bᥱ ᥴrᥱᥱρყ or smth ᥲᥒd ιt mᥲkᥱs mᥱ kιᥒd υᥒᥴomfortᥲbᥣᥱ𖥨᩠ׄˇ⌢. ۫ ·。
+
+[![Animated-image-resizer.gif](https://i.postimg.cc/zGj1Mzgp/Animated-image-resizer.gif)](https://postimg.cc/fVJFSh50)
+
+— ᨳଓ .ᥲᥣwᥲყs ᥴ+h ιᥒt ᥱvᥱᥒ whᥱᥒ ιm w frιᥱᥒds oυt of mყ ᥒᥲmᥱ sᥲყs smth ᥱᥣsᥱ ᥲᥣso ᥲrᥱ ᥲt ᥣᥱᥲst somᥱwhᥲt kιᥒd ᥲᥒd doᥒt ιᥒsυᥣt υs w/o ᥲᥒd rᥱᥲsoᥒ ρᥣs⋆˚꩜｡
 <!--
 **Cannibalsobsession/Cannibalsobsession** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
