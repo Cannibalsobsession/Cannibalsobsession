@@ -2,6 +2,8 @@
 
 "there's no curse more twisted than love"
 
+![★*☆♪](https://komarev.com/ghpvc/?username=Cannibalsobsession&color=684b73)
+
 ℋℯ𝓁𝓁𝓁𝓁𝓁ℴℴ! 𝒾𝓂 𝒷ℯ𝒶𝓃𝓈 ℴ𝓇 𝒻ℴ𝓇 𝓅ℯℴ𝓅𝓁ℯ 𝓌𝒽ℴ 𝒹ℴ𝓃𝓉 𝓀𝓃ℴ𝓌 𝓂ℯ 𝓍𝒾𝓃! 𝒾𝓂 𝒶𝓃 ℯ𝓃ℯ𝓇ℊℯ𝓉𝒾𝒸 𝓅ℯ𝓇𝓈ℴ𝓃 𝒶𝓃𝒹 𝓀𝒾𝓃𝒹 𝒾𝒹 𝓁ℴ𝓋ℯ 𝓉ℴ 𝓂ℯℯ𝓉 𝓎ℴ𝓊 𝒶𝓃𝒹 𝓎ℴ𝓊𝓇 𝒻𝓇𝒾ℯ𝓃𝒹𝓈!! 𝒜𝓁𝓌𝒶𝓎𝓈 𝒞+ℋ 𝒻𝓇ℯℯ𝓁𝓎 𝒶𝓃𝒹 𝒾𝓃𝓉 𝒻𝓇ℯℯ𝓁𝓎
 
 
