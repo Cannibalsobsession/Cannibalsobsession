@@ -28,7 +28,11 @@
 ᥲttᥱᥒtιoᥒ!!! ι mιght hᥲvᥱ ᥲᥒgᥱr ιssυᥱs somᥱtιmᥱs ᥲᥒd ιf ᥒot w frιᥱᥒd ιm υsυᥲᥣᥣყ qυιᥱt ι hᥲvᥱ sᥣιght ᥲdhd ᥲᥒd sᥱvᥱrᥱ dᥱρrᥱssιoᥒ thᥲt mιght show somᥱtιmᥱs!!!
 
 [![tumblr-ad51a76c948907fed3947943024ed52a-f8e1185a-1280.gif](https://i.postimg.cc/PJGcnbGx/tumblr-ad51a76c948907fed3947943024ed52a-f8e1185a-1280.gif)](https://postimg.cc/7GVXg2Z8)
+ty to pony town ships
+[![Screenshot-20260908-110325-Chrome.jpg](https://i.postimg.cc/BnwwZ1GD/Screenshot-20260908-110325-Chrome.jpg)](https://postimg.cc/CRk4m55L)
 
+and [![Screenshot-20260908-110432-
+Chrome.jpg](https://i.postimg.cc/pdwGzbr9/Screenshot-20260908-110432-Chrome.jpg)](https://postimg.cc/zLkFYQn5)
 [![tumblr-3c0b4e2306566e8ccf99926dc1a9effe-71787ae3-1280.png](https://i.postimg.cc/2yqdzgDH/tumblr-3c0b4e2306566e8ccf99926dc1a9effe-71787ae3-1280.png)](https://postimg.cc/QK3Km4V5)
 ![](https://komarev.com)
 
