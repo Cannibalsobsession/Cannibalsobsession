@@ -25,7 +25,7 @@
 [![tumblr-ad51a76c948907fed3947943024ed52a-f8e1185a-1280.gif](https://i.postimg.cc/PJGcnbGx/tumblr-ad51a76c948907fed3947943024ed52a-f8e1185a-1280.gif)](https://postimg.cc/7GVXg2Z8)
 
 
-ᥲttᥱᥒtιoᥒ!!! ι mιght hᥲvᥱ ᥲᥒgᥱr ιssυᥱs somᥱtιmᥱs ᥲᥒd ιf ᥒot w frιᥱᥒd ιm υsυᥲᥣᥣყ qυιᥱt ι hᥲvᥱ sᥣιght ᥲdhd ᥲᥒd sᥱvᥱrᥱ dᥱρrᥱssιoᥒ thᥲt mιght show somᥱtιmᥱs!!!
+ 
 
 [![tumblr-ad51a76c948907fed3947943024ed52a-f8e1185a-1280.gif](https://i.postimg.cc/PJGcnbGx/tumblr-ad51a76c948907fed3947943024ed52a-f8e1185a-1280.gif)](https://postimg.cc/7GVXg2Z8)
 aww ty melody!!
@@ -35,6 +35,13 @@ aww ty melody!!
 ![](https://komarev.com)
 
 [![tumblr-0e045718fa2144f8fd65d510a6b2e696-cf9e21fc-1280.png](https://i.postimg.cc/X7CG48fB/tumblr-0e045718fa2144f8fd65d510a6b2e696-cf9e21fc-1280.png)](https://postimg.cc/vcGHv5SG)
+<details>
+<summary> please read</summary>
+<br>
+
+---
+Do NOT compare me to my friends! I do not have their intentions and dont pull me into their dramas. I had some friends that were problematic, they no longer are my friends but still im terribly sorry if I made you uncomfortable
+
 <!--
 **Cannibalsobsession/Cannibalsobsession** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
