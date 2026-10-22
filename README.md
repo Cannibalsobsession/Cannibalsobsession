@@ -1,46 +1,16 @@
-[![tumblr-0e045718fa2144f8fd65d510a6b2e696-cf9e21fc-1280.png](https://i.postimg.cc/X7CG48fB/tumblr-0e045718fa2144f8fd65d510a6b2e696-cf9e21fc-1280.png)](https://postimg.cc/vcGHv5SG)
+[![tumblr-0859271353d9af28f247b46d97e79735-b285f6dc-500-gif.webp](https://i.postimg.cc/hvd6xNfQ/tumblr-0859271353d9af28f247b46d97e79735-b285f6dc-500-gif.webp)](https://postimg.cc/RJvgxs1v)
 
-[![tumblr-550af706b5b778d44249226ba124716c-cbbb7c39-1280.png](https://i.postimg.cc/N0z7WghH/tumblr-550af706b5b778d44249226ba124716c-cbbb7c39-1280.png)](https://postimg.cc/PL1wDn5X)
-
-"there's no curse more twisted than love"
-
-![★*☆♪](https://komarev.com/ghpvc/?username=Cannibalsobsession&color=684b73)
-
-ℋℯ𝓁𝓁𝓁𝓁𝓁ℴℴ! 𝒾𝓂 𝒷ℯ𝒶𝓃𝓈 ℴ𝓇 𝒻ℴ𝓇 𝓅ℯℴ𝓅𝓁ℯ 𝓌𝒽ℴ 𝒹ℴ𝓃𝓉 𝓀𝓃ℴ𝓌 𝓂ℯ 𝓍𝒾𝓃! 𝒾𝓂 𝒶𝓃 ℯ𝓃ℯ𝓇ℊℯ𝓉𝒾𝒸 𝓅ℯ𝓇𝓈ℴ𝓃 𝒶𝓃𝒹 𝓀𝒾𝓃𝒹 𝒾𝒹 𝓁ℴ𝓋ℯ 𝓉ℴ 𝓂ℯℯ𝓉 𝓎ℴ𝓊 𝒶𝓃𝒹 𝓎ℴ𝓊𝓇 𝒻𝓇𝒾ℯ𝓃𝒹𝓈!! 𝒜𝓁𝓌𝒶𝓎𝓈 𝒞+ℋ 𝒻𝓇ℯℯ𝓁𝓎 𝒶𝓃𝒹 𝒾𝓃𝓉 𝒻𝓇ℯℯ𝓁𝓎
-
-
-˳˳.⋅ॱ˙⋅.˳˳.⋅ॱ˙⋅.˳˳.⋅ॱ˙⋅.˳˳.⋅ॱ˙⋅.˳˳.⋅ॱ˙⋅.˳˳.⋅ॱ˙⋅.˳˳.⋅ॱ˙⋅.˳˳.⋅ॱ
-
-
-[![aa61d1ba72b8dfb969359caad414b2ff8f673ff2-gifv.gif](https://i.postimg.cc/MH8RSH9S/aa61d1ba72b8dfb969359caad414b2ff8f673ff2-gifv.gif)](https://postimg.cc/dk4DRsMH)
-
-
-
-𝓱𝓮𝓻𝓮 𝓪𝓻𝓮 𝓼𝓸𝓶𝓮 𝓲𝓶𝓹𝓸𝓻𝓽𝓪𝓷𝓽 𝓭𝓮𝓽𝓪𝓲𝓵𝓼 𝓫𝓮𝓯𝓸𝓻𝓮 𝔂𝓸𝓾 𝓲𝓷𝓽 𝓫𝓬 𝓼𝓸𝓶𝓮 𝓹𝓹𝓵 𝓪𝓻𝓮 𝓽𝓸 𝓵𝓪𝔃𝔂 𝓽𝓸 𝓬𝓱𝓮𝓬𝓴 𝓸𝓷 𝓼𝓽𝓻𝔀𝓹𝓪𝓰𝓮!
-𝓟𝓵𝓼 𝓭𝓸𝓷𝓽 𝓫𝓮 𝓻𝓾𝓭𝓮 𝓯𝓸𝓻 𝓷𝓸 𝓻𝓮𝓪𝓼𝓸𝓷??? 𝓘 𝓭𝓸𝓷𝓽 𝓼𝓮𝓮 𝔀𝓱𝔂 𝔂𝓸𝓾 𝔀𝓸𝓾𝓵𝓭 𝓭𝓸 𝓽𝓱𝓪𝓽 
-˳˳.⋅ॱ˙⋅.˳˳.⋅ॱ˙⋅.˳˳.⋅ॱ˙⋅.˳˳.⋅ॱ˙⋅.˳˳.⋅ॱ˙⋅.˳˳.⋅ॱ˙⋅.˳˳.⋅ॱ˙⋅.˳˳.⋅ॱ
-
-
-𝓜𝓪𝓼𝓼𝓲𝓿𝓮 𝓹𝓸𝓹𝓹𝔂 𝓪𝓷𝓭 𝔀𝓲𝓯𝓲𝓮𝓼 𝓴𝓲𝓷!!
-[![tumblr-ad51a76c948907fed3947943024ed52a-f8e1185a-1280.gif](https://i.postimg.cc/PJGcnbGx/tumblr-ad51a76c948907fed3947943024ed52a-f8e1185a-1280.gif)](https://postimg.cc/7GVXg2Z8)
-
-
- 
-
-[![tumblr-ad51a76c948907fed3947943024ed52a-f8e1185a-1280.gif](https://i.postimg.cc/PJGcnbGx/tumblr-ad51a76c948907fed3947943024ed52a-f8e1185a-1280.gif)](https://postimg.cc/7GVXg2Z8)
-aww ty melody!!
-[![Screenshot-20261011-192652-Chrome.jpg](https://i.postimg.cc/HsdBkNp6/Screenshot-20261011-192652-Chrome.jpg)](https://postimg.cc/3WfgLn0G)
-
-[![tumblr-3c0b4e2306566e8ccf99926dc1a9effe-71787ae3-1280.png](https://i.postimg.cc/2yqdzgDH/tumblr-3c0b4e2306566e8ccf99926dc1a9effe-71787ae3-1280.png)](https://postimg.cc/QK3Km4V5)
-![](https://komarev.com)
-
-[![tumblr-0e045718fa2144f8fd65d510a6b2e696-cf9e21fc-1280.png](https://i.postimg.cc/X7CG48fB/tumblr-0e045718fa2144f8fd65d510a6b2e696-cf9e21fc-1280.png)](https://postimg.cc/vcGHv5SG)
 <details>
 <summary> please read</summary>
 <br>
 
 ---
 Do NOT compare me to my friends! I do not have their intentions and dont pull me into their dramas. I had some friends that were problematic, they no longer are my friends but still im terribly sorry if I made you uncomfortable
+
+
+now let's talk abt star aka dandyzworldyur1
+they manipulated and guilt tripped me.they were the ones cuddling w me and sending me a friend request. we didnt talk much usually just cuddled not until they randomly stared venting saying things like "I cant take ts life anymore" or "I keep cutting deeper" anf then always said sorry for doing so I said its fine and that I will listen I do listen a lot but I found it kinda weird that it came all of the sudden ! then they started to get more specific like "ehat if I wouldn't just have been born" or smth else I tried to talk them out but they kept doing so I got sort of uncomfy but still was kind and listened, I do not have clips because I didnt think they would be necessary honestly. they then started telling me to unfriended or block people. I didnt and asked why and their answer was bc they harassed me, but ehat was weird when I asked my friends they told me they never even talked to them so I told them no. then they ignored me for a few days before coming back and telling me abt how they might commute soon and told me they were all alone and everyone hates them. then they started abt their friend so called soda who also is on their doc I told them that I cant really help with that bc idk them etc. but they kept talking abt them then they started asking me to gift them ponys I felt bad so I did it was a flutter in my old style. I later on found out abt them harassing people etc. so then I blocked them its been over a month already. I am terribly sorry to the people I made uncomfortable bc I cuddled with them and I really hope you can forgive me for that.
+
 
 <!--
 **Cannibalsobsession/Cannibalsobsession** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
